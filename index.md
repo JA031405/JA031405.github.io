@@ -1,4 +1,4 @@
 ## Welcome to the Homepage
 
-discord user: StroopWafelKid
-My snap: j_alva314
+__discord user: StroopWafelKid
+__My snap: j_alva314
